@@ -1,6 +1,6 @@
 # Butler Cat Apps – Privacy Policy
 
-문의: butlercat.privacy@gmail.com
+문의: butlercat.contact@gmail.com
 
 ---
 
